@@ -1,1 +1,0 @@
-# tejaswipinnaka.github.io
